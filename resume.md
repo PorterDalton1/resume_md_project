@@ -1,7 +1,5 @@
 # Porter Dalton
-(555) 764-8927
-holytoots@gmail.com
-github.com/PorterDalton1
+(555) 764-8927 - holytoots@gmail.com - github.com/PorterDalton1
 
 ## Experience
 
